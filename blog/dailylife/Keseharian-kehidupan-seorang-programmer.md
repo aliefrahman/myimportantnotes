@@ -1,0 +1,1 @@
+Mengintip aktivitas sehari-hari seorang programmer dapat memberikan gambaran tentang bagaimana teknologi dan kreativitas berpadu dalam rutinitas mereka. Profesi ini bukan hanya tentang mengetik kode sepanjang hari, tetapi juga melibatkan pemecahan masalah, kolaborasi, dan pembelajaran kontinu. Mari kita telusuri seperti apa sehari dalam kehidupan seorang programmer.
